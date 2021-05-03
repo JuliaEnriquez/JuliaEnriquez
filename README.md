@@ -2,4 +2,4 @@
 - 👀 I’m interested in coding (no shit sherlock)
 - 🌱 I’m currently learning python, I just began learning this year (2021)
 - 💞️ I’m looking to collaborate with someone who could help and/or learn with me.
-- 📫 Twitter: @saywhatjulia
+- 📫 Twitter: @saywhatjulia; Discord: juulia#9874
